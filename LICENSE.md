@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Audition for macOS script with ultimate Adobe Audition for macOS Script | green-screen-removal + time-remapping. Featuring green-screen-removal and
 
 
 
